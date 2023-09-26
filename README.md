@@ -1,3 +1,3 @@
 # reddy.github.io
 
-# ramudu bheemudu
+# ramudu bheemu
